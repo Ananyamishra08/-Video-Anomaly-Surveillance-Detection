@@ -1,3 +1,0 @@
-# -Video-Anomaly-Surveillance-Detection
-
-ONGOING ................................
